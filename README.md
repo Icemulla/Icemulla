@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Icemulla
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me +2348165987910
